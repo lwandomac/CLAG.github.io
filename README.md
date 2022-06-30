@@ -1,1 +1,1 @@
-# CLAG.github.io
+# CLAG
